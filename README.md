@@ -14,6 +14,6 @@ I am passionate about video editing and creative content.
 
 ##  About Me
 I enjoy creating engaging video edits with smooth transitions, effects, and music synchronization.  
-Currently learning video editing and exploring web development.
+Currently learning video editing and exploring web development
 I also run a youtube where i edit my own content which improve my video editing skills.
 yt link:-https://youtube.com/@adarshblueprint-941?si=5ytaI5M0Cc5Cqr4f
